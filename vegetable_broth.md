@@ -32,6 +32,7 @@ Extra
 When adding any ingredient from this section, consider if it matches with the recipes you are aiming.
 + 2 bay leaves
 + Parmigiano-reggiano rinds: adds umami and it is great for risotti
++ 4 inches of leek
 
 
 Instructions
