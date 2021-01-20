@@ -8,9 +8,9 @@ Equipments
 Essential ingredients
 ---------------------
 + 400g red lentils
-+ 2 tsps turmeric
-+ 3 tbsps hemp seed oil
-+ 2 tsps cumin seeds
++ 2 tsps of turmeric
++ 1 tbsp of unsalted butter
++ 2 tsps of cumin seeds
 + 1 small onion, finely chopped
 + 2-3 cloves garlic, finely sliced
 + 1-2 fresh green chillies, finely sliced (remove seeds if you want to keep the heat down)
